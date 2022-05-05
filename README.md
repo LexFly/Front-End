@@ -1,2 +1,3 @@
 # Front-End
-LexFly.One - DEX Exchange - Blockchain Bridge - Launchpad - All in one Protocol.
+LexFly.One - The Ideal field for your creative cultivation
+				       The Era of Your Flourishment Begins Now
